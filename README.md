@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MOGM711009HDFNNR01
+MOGM711009HDFNNR01
